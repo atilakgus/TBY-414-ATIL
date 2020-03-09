@@ -1,1 +1,0 @@
-# veri-madencili-i-dersi-dev-2
